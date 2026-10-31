@@ -39,6 +39,18 @@ Psychological thriller
 https://en.wikipedia.org/wiki/Classroom_of_the_Elite_(TV_series)
 
 ### Kuroko No Basket
+<img width="1064" height="1596" alt="image" src="https://github.com/user-attachments/assets/9df272e5-0d92-41ab-b7a3-0f8198623ce4" />
+
+**Genre:**
+Comedy,
+Sports
+
+**Kuroko's Basketball** (Japanese: 黒子のバスケ, Hepburn: **Kuroko no Basuke**) is a Japanese sports manga series written and illustrated by Tadatoshi Fujimaki. It was serialized in Shueisha's shōnen manga magazine Weekly Shōnen Jump from December 2008 to September 2014, with its chapters collected in 30 tankōbon volumes. It tells the story of a high school basketball team trying to make it to the national tournament.
+An anime television series adaptation by Production I.G aired for three seasons from April 2012 to June 2015. A sequel manga, Kuroko's Basketball: Extra Game, was serialized in Jump Next! from December 2014 to March 2016. An anime film adaptation of the Kuroko's Basketball: Extra Game manga premiered in March 2017. A stage play adaptation opened in April 2016 followed by more stage adaptations.
+The manga has been licensed for English-language release by Viz Media in North America. By November 2020, Kuroko's Basketball had over 31 million copies in circulation, making it one of the best-selling manga series.
+https://en.wikipedia.org/wiki/Kuroko%27s_Basketball
+
+## Demon Slayer
 
 
 
