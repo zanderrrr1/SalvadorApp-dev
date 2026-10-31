@@ -3,7 +3,7 @@
 2. Flame of Recca
 3. Classroom of the Elite
 4. kuroko no Basket
-5. One Piece
+5. Demon Slayer
 
 ## Bakugan
 <img width="263" height="378" alt="image" src="https://github.com/user-attachments/assets/28831aeb-41ac-4332-90c1-6b3e82cdfc89" />
