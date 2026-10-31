@@ -6,6 +6,7 @@
 5. One Piece
 
 ## Bakugan
+https://github.com/zanderrrr1/SalvadorApp-dev/blob/main/Bakugan_DVD_Volume_13_(Japanese).jpg?raw=true
 **Bakugan Battle Brawlers** (爆丸バトルブローラーズ, **Bakugan Batoru Burōrāzu**) is a Japanese-Canadian animated television series produced by TMS Entertainment, Sega Toys, Japan Vistec, Spin Master, and Nelvana in association with Teletoon. The series was directed by Mitsuo Hashimoto and originally aired on TV Tokyo and its affiliates in Japan from April 2007 to March 2008.
 https://en.wikipedia.org/wiki/Bakugan_(TV_series)
 
