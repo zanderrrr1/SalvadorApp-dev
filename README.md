@@ -51,7 +51,6 @@ The manga has been licensed for English-language release by Viz Media in North A
 https://en.wikipedia.org/wiki/Kuroko%27s_Basketball
 
 ## Demon Slayer
-<img width="452" height="678" alt="image" src="https://github.com/user-attachments/assets/dce6c172-6cce-4ddf-99f9-349b8646b22d" />
 
 **Genre:**	
 Adventure,
