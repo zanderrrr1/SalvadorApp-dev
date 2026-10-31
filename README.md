@@ -51,6 +51,16 @@ The manga has been licensed for English-language release by Viz Media in North A
 https://en.wikipedia.org/wiki/Kuroko%27s_Basketball
 
 ## Demon Slayer
+<img width="452" height="678" alt="image" src="https://github.com/user-attachments/assets/dce6c172-6cce-4ddf-99f9-349b8646b22d" />
+
+**Genre:**	
+Adventure,
+Dark fantasy,
+Martial arts
+
+**Demon Slayer: Kimetsu no Yaiba** (Japanese: 鬼滅の刃, Hepburn: **Kimetsu no Yaiba**; rgh. 'Blade of Demon Destruction'[4]) is a Japanese manga series written and illustrated by Koyoharu Gotouge. It was serialized in Shueisha's shōnen manga magazine Weekly Shōnen Jump from February 2016 to May 2020, with its chapters collected in 23 tankōbon volumes. It has been published in English by Viz Media and simultaneously on the Manga Plus platform by Shueisha. It follows teenage Tanjiro Kamado, who joins the Demon Slayer Corps after his family is slaughtered and the sole survivor, his younger sister Nezuko, is turned into a demon, in the hopes of turning her human again.
+https://en.wikipedia.org/wiki/Demon_Slayer:_Kimetsu_no_Yaiba_(TV_series)
+
 
 
 
