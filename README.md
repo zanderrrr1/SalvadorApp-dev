@@ -19,7 +19,7 @@ Science fantasy
 https://en.wikipedia.org/wiki/Bakugan_(TV_series)
 
 ### Flame of Recca
-<img width="640" height="412" alt="image" src="https://github.com/user-attachments/assets/745fab7e-af51-456e-80bd-ae8ae4d4b689" />
+<img width="640" height="960" alt="image" src="https://github.com/user-attachments/assets/59ae428b-3940-4c2d-bdad-897b114c684c" />
 
 **Genre:**
 Adventure,
