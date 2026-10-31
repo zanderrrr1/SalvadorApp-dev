@@ -6,6 +6,7 @@
 5. Demon Slayer
 
 ### Bakugan
+<img width="1000" height="1471" alt="image" src="https://github.com/user-attachments/assets/1d83e4c4-918c-4238-a1cb-3395e2478445" />
 
 
 **Genre:**
