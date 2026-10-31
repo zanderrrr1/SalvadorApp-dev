@@ -28,6 +28,9 @@ Supernatural
 **Flame of Recca** (Japanese: 烈火の炎, **Hepburn: Rekka no Honō**) is a Japanese manga series written and illustrated by Nobuyuki Anzai. It was serialized in Shogakukan's shōnen manga magazine Weekly Shōnen Sunday from March 1995 to January 2002, with its chapters collected in 33 tankōbon volumes. The series follows Recca Hanabishi, a teenage ninja with the ability to manipulate fire who is a descendant of the Hokage clan, which was wiped out centuries ago.
 https://en.wikipedia.org/wiki/Flame_of_Recca#cite_note-VizOfficial-1
 
+### Classroom of the Elite
+
+
 
 
 
