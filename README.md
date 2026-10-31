@@ -29,6 +29,13 @@ Supernatural
 https://en.wikipedia.org/wiki/Flame_of_Recca#cite_note-VizOfficial-1
 
 ### Classroom of the Elite
+<img width="2000" height="3000" alt="image" src="https://github.com/user-attachments/assets/ceccf778-7a77-4a59-8bd6-6ebc8c97e5e9" />
+
+**Genre:**
+Psychological thriller
+
+**Classroom of the Elite** (Japanese: ようこそ実力至上主義の教室へ, Hepburn: **Yōkoso Jitsuryoku Shijōshugi no Kyōshitsu e**; lit. 'Welcome to the Classroom of Real Ability Supremacism'), abbreviated as Yōjitsu (よう実) in Japan, is a Japanese light novel series written by Shōgo Kinugasa, with illustrations by Shunsaku Tomose. The series is published under Media Factory's MF Bunko J imprint, with Classroom of the Elite: Year 1 published from May 2015 to September 2019; followed by its sequel Classroom of the Elite: Year 2 (ようこそ実力至上主義の教室へ 2年生編, Yōkoso Jitsuryoku Shijōshugi no Kyōshitsu e Ninensei-hen; lit. 'Welcome to the Classroom of Real Ability Supremacism Second-Year Students Edition') published from January 2020 to November 2024, as well as the follow-up Classroom of the Elite: Year 3 (ようこそ実力至上主義の教室へ 3年生編, Yōkoso Jitsuryoku Shijōshugi no Kyōshitsu e Sannensei-hen; lit. 'Welcome to the Classroom of Real Ability Supremacism Third-Year Students Edition'), which began publishing in March 2025.
+https://en.wikipedia.org/wiki/Classroom_of_the_Elite_(TV_series)
 
 
 
