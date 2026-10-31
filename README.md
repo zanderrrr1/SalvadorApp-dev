@@ -4,4 +4,5 @@
 3. Classroom of the Elite
 4. kuroko no Basket
 5. One Piece
-   
+
+  ## Bakugan
